@@ -1,1 +1,0 @@
-#### Follow the [Bioinfo Club on Twitter](https://twitter.com/ClubBioinfoIBIS) (some communications in French)
